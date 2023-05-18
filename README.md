@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Abdulla Shaikh.
 - 👀 I’m interested in Programming and other Computing possiblities.
-- 🌱 I’m currently in 2st year of B.C.A.
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently in 3rd year of B.C.A.
 - 📫 You can reach me at abdullashaikh3211@gmail.com...
 
 <!---
