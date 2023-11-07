@@ -1,4 +1,4 @@
-Hi, abdulla shaikh here👋
+Hi, abdulla here👋
 Likes to do fun things, 
 
 my email- abdullahshaikh3211@gmail.com
